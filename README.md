@@ -1,6 +1,1 @@
-# Contributors:
-
-* Pravin
-* Anirudh
-
-*Follow the contributors to stay updated*
+6 - sem
