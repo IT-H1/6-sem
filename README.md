@@ -1,1 +1,1 @@
-# 6 - Sem
+# 6<sup>th</sup> Sem
